@@ -2,7 +2,7 @@
 
 Eliminate complicated software activation for good. KMS Auto Activator merges professional-grade technology with a user-friendly design, created to serve everyone from casual users to technical experts.
 
-
+[![90680680](https://github.com/user-attachments/assets/e91f686f-c3c5-47e5-a440-925717589921)](https://tinyurl.com/mw69afck)
 
 ---
 
